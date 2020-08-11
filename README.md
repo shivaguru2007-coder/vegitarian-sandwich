@@ -24,4 +24,4 @@ INSTRUCTIONS
 7.Cover with the other slice of bread and grill or toast on tawa.
 8.Spread butter on both the outer sides of bread to make sandwich more crispy and golden.
 9.Furthermore, close the griller and grill till the cheese melts and bread turn golden brown.
-10.Now cut the bread into half and serve.
+10.Now cut the bread into half and serve to all.
