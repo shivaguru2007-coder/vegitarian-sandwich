@@ -1,11 +1,11 @@
 Ingredients
-4 bread slices, brown / white bread
+4 bread slices, brown or  white bread
 2 tsp oil
 ½ onion, finely chopped
-½ cup corn, fresh / frozen
+½ cup corn, fresh or frozen
 1 carrot, finely chopped
 ½ capsicum, finely chopped
-1 bunch spinach / palak leaves, chopped
+1 bunch spinach or palak leaves, chopped
 1 tsp crushed pepper
 ½ tsp mixed herbs, optional
 salt to taste
